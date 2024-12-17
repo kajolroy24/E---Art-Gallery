@@ -1,1 +1,1 @@
-# E---Art-Gallery
+# E-Art-Gallery
